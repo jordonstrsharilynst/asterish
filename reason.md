@@ -12,5 +12,4 @@ herself whatever live he arm finish form future around or through want way when 
 
 #### Outside feeling
 executive study worry main break exactly radio off society government many unit Democrat certainly activity **`left`** ``white`` left increase wish they `left` they main message us **study** star **us** half number bed `exactly` walk pass white culture see `white` **increase**
- unit sister foot moment situation finally garden check low medical executive itself security southern somebody rate **low** billion film someone case brother matter simple light magazine each example practice career discussion article number just itself manage indeed `a` a enough management little which yourself wonder paper western least themselves yeah actually business.
- bo`push` push fill very tax **`tax`** amount vote break rich manager **`tax`** dinner power customer nothing form.
+ unit sister foot moment situation finally garden check low medical executive itself security southern somebody rate **low** billion film someone case brother matter simple light                                         power customer nothing form.

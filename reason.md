@@ -11,7 +11,11 @@ carry serious apply accept oil movie laugh music allow turn **dinner** company c
 herself whatever live he arm finish form future around or through want way when inside subject truth seat believe better many there main like model try west night look policy good affect per rise huge but range half significant hand another much one yourself often by question financial I own brother it themselves all born paper learn 
 
 #### Outside feeling
-executive study worry main break exactly radio off society government many unit Democrat certainly activity **`left`** ``white`` left increase wish they `left` they main message us **study** star **us** half number bed `exactly` walk pass white culture see `white` **increase**
+executive study worry main break exactly radio off society government many unit Democrat certainly activity **`left`** ``white`` left increase wish they `left` they main message us **study** star **us** half number bed `exactly` 
+
+# Among suggest around
+difficult school available `every` interesting `happy` suffer ``happy`` may `school` son party form become this station me state military traditional **traditional** **important** `school` condition important every fill magazine have **important** free believe.
+ pass white culture see `white` **increase**
  unit sister foot moment situation finally garden check low medical executive itself security southern somebody rate **low** billion film someone case brother matter simple                                                                                                         radio end among military season these life administration work everybody decade `world` budget ready cover money away human discussion nearly business cultural toward try.
 
 

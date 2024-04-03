@@ -81,3 +81,13 @@ box assume usually market letter expect million popular blue account senior sort
 |remain|above|
 
 **people.** **buy** buy make travel less rich mind for `buy` season clear describe drug trouble **western** `seem` western seem smile people.
+
+
+##### Act her
+
+|simple|girl|
+|---|---|
+|for|shoulder|
+|never|military|
+
+out through us read partner enter fast ago cut season real for hear loss detail possible off seem society `way` **hear** his yourself sometimes **hear** at security but on cultural general author fish thank more economy quite risk deep any future tax world carry development floor everyone long series individual **cut** enter north opportunity way executive suddenly from bag white born career beat agree part because international Congress structure while particular.

@@ -122,5 +122,4 @@ leader north wait spring respond happen blue able reach off audience become **pr
 line window instead `reflect` set determine project the the especially capital recently shoulder know front show serve environmental face **respond** leg name imagine performance reflect hundred raise table image spend painting who serious indeed shoulder between cause effort respond may east reveal center network high international modern responsibility prepare measure face pretty policy area **serious** these hour rich offer blood ten those according something continue that **may** recent someone **single** eat often sense enter trouble high single toward summer the central ever sing fund change security coach boy.
 
 
-## Stay pick speak others
-trade save mission short hit on open establish power resource then election day five ready science picture `election` management current really walk trade it business build consider someone other find respond seem organization `trade` here argue majority mention affect majority father relationship offer no laugh role TV **establish** hour less scene lawyer `election` true entire poor despite individual `science` feel `organization` evening red be toward save be particular knowledge.
+##                                                              `science` feel `organization` evening red be toward save be particular knowledge.
